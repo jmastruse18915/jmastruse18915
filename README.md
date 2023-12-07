@@ -1,4 +1,4 @@
 jmastruse18915
 
-Currently student at USF 
+Currently a student at USF 
 
